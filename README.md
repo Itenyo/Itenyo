@@ -8,3 +8,6 @@
 Itenyo/Itenyo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+whatsapp 0706551534
+instagram @ n.o.t.f.o.r.s.a.l.e__
+https://www.instagram.com/invites/contact/?i=32qltsnd534b&utm_content=lp0bfhn
