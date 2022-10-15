@@ -1,4 +1,4 @@
-![work-1](https://user-images.githubusercontent.com/99266965/165511306-762f53de-a3dd-46b2-923c-fe8756192057.jpg)
+![work-1](https://user-images.githubusercontent.com/99266965/165511306-762f53de-a3dd-46b2-923c-fe8756192057.jpg/https://github.com/Itenyo/Itenyo/edit/main/README.md)
 - 👋 Hi, I’m Itenyo
 - 👀 I’m interested in playing with the codes,
 - 🌱 I’m currently learning Software engineering, ict and am also a webdeveloper...
