@@ -2,7 +2,7 @@
 
 - 👋 Hi, I’m Itenyo
 - 👀 I’m interested in playing with the codes,
-- 🌱 I’m currently learning Software engineering, ict and am also a webdeveloper...
+- 🌱 I’m currently learning Software engineering, ict 
 - 💞️ I’m looking to collaborate on any sofware progam...
 - 📫 How to reach me via my linkdin https://www.linkedin.com/in/kevin-mmasi-a25276230 
 ,whatsapp 0706551534 ,
